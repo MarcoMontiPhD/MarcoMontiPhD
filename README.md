@@ -63,7 +63,7 @@ My work often results in research papers, conference presentations, and industry
 
 ## Contact & socials
 
-  - **LinkedIn:** [https://www.linkedin.com/in/marco-monti-ph-d-63b3334/](https://www.google.com/search?q=https://www.linkedin.com/in/marco-monti-ph-d-63b3334/)
+  - **LinkedIn:** [https://www.linkedin.com/in/marcomonti2021cognitiveai/](https://www.linkedin.com/in/marcomonti2021cognitiveai/)
 
 -----
 
